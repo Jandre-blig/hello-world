@@ -1,0 +1,1 @@
+It's importatnt to fully understand the work because I want to really learn and not rush through everything.
